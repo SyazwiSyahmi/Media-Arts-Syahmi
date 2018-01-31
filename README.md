@@ -13,3 +13,8 @@ To say that travelling is good for you. We should consider it at some point in o
 Of course, my statement is not to declare that travelling is a must, it's a matter of you should consider it and make effort to travel. For your own benefit.
 
 # The "doodles" / "sketches"
+![02](https://user-images.githubusercontent.com/35996518/35622981-c6cc68c2-06c4-11e8-94a7-a597f109d76c.JPG)
+
+![03](https://user-images.githubusercontent.com/35996518/35622983-c9e32b68-06c4-11e8-96f1-4012c7267c59.JPG)
+
+![04](https://user-images.githubusercontent.com/35996518/35622990-cba78b38-06c4-11e8-9862-4f1d69db655a.JPG)
